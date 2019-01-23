@@ -7,7 +7,6 @@ He could not find anything in Iowa, just snow, a massive pile of snow. :snowflak
 It liked eating peanut butter and pickle sandwiches and for that it was an outcast, as God intended. 
 
 Meow Meow Cats are the best!
-Dogs are better 
-One morning, a beautiful morning, something pretty strange hit the planet.
+Dogs are better lets be honest 
 
 Joe :heart: Dirac distribution
